@@ -16,7 +16,7 @@ Here are some ideas to get you started:
 -->
 
 Laura
-22
+22y
 National Sun Yet-sen University
-Political Economy
+Department of Political Economy
 Music
